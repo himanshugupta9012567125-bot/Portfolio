@@ -1,2 +1,2 @@
 # Portfolio
-MY introDuction
+Intro Duction OF my Self ANd MY Skills
